@@ -1,7 +1,6 @@
 <html>
   <head>
       <meta charset="utf-8"/>
-	  <title>One piece</title>
 	  <link href="anime.css"rel="stylesheet"/>
   </head>
   <body>
