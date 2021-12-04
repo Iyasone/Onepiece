@@ -162,7 +162,7 @@
   Uo (魚（ウオ）, Uo) signifie "poisson" en japonais. Seiryu (青（セイ）龍（リュウ）, Seiryū) est le nom japonais du dragon azur. <br/>
   Sous sa forme animale, Kaido ressemble à un dragon oriental.<br/>
   </h3>
-  <h2>Le freuit du smile</h2>
+  <h2>Le fruit du smile</h2>
   https://www.youtube.com/embed/DDeynPAUUS4
   <h3>
   Les Fruits SMILE (スマイル, Sumairu) sont un type de Fruits du Démon de type Zoan naturels uniquement.<br/>
