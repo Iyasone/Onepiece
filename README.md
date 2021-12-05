@@ -153,6 +153,7 @@
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-999-vostfr/">episode 999 vostfr</a><br/>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-1000-vostfr/">episode 1000 vostfr</a><br/>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-1001-vostfr/">episode 1001 vostfr</a><br/>
+       <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-1002-vostfr/">episode 1002 vostfr</a><br/>
   <h2>Meilleur moment de l'arc wano</h2>
   https://www.youtube.com/embed/IDjTP_TIwUM
   <h2>Le fruit du démon de Kaido</h2>
