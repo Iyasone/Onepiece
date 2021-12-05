@@ -44,6 +44,10 @@
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-892-vostfr/">episode 892 vostfr</a><br/>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-893-vostfr/">episode 893 vostfr</a><br/>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-894-vostfr/">episode 894 vostfr</a><br/>
+	  <h2>Episode arc de cidre</h2>
+  <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-895-vostfr/">episode 895 vostfr</a><br/>
+  <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-896-vostfr/">episode 896 vostfr</a><br/>
+  <h2>Suite épisode de l'arc wano</h2>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-897-vostfr/">episode 897 vostfr</a><br/>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-898-vostfr/">episode 898 vostfr</a><br/>
   <a target="_blank" href="https://one-piece-streaming-fr.com/one-piece-episode-899-vostfr/">episode 899 vostfr</a><br/>
